@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+ 클라우드와 모바일에 관심이 많습니다. 사업기획, 상품기획 업무를 하고 있습니다. BaaS(Backend as a Service)를 좋아합니다.  
+https://imyaman.youre.space/
